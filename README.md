@@ -1,2 +1,2 @@
 # Graphic
-Graphic Designing Work using CANVA
+Freelancing Graphic design work using CANVA
